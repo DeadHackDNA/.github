@@ -28,7 +28,7 @@ Las contribuciones son bienvenidas. Si estás interesado en colaborar, por favor
 
 ## 📬 Contacto
 
-Para más información o consultas, puedes contactarnos a través de [correo@deadhack.com](mailto:correo@deadhack.com).
+Para más información o consultas, puedes contactarnos a través de [192666@unsaac.edu.pe](192666@unsaac.edu.pe).
 
 ## 🔗 Enlaces Relacionados
 
